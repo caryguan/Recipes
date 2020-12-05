@@ -21,7 +21,7 @@ Seasame Oil
 5 Spice  
 Chicken Bouillon Powder  
 
-## Methods
+## Method
 1. Mix flour with water, add yeast, make a dough, let it rest for 30 mins  
 2. Soak vermicelli in warm water  
 3. Chop chives and add in 1 spoon of salt and mix to start softening  
