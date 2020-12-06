@@ -1,4 +1,4 @@
-# Recipe Name
+# Peanut Butter
 
 ## Notes
 
@@ -6,10 +6,6 @@
 ## Ingredients
 ### Main
 
-
 ### Other
 
-
 ## Method
-
-  
