@@ -1,4 +1,4 @@
-# Peanut Butter
+# Recipe Name
 
 ## Notes
 
