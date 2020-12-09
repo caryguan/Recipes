@@ -6,19 +6,19 @@ Add pork belly/bacon in pan first to render out fat and cook pancake in the fat
 
 ## Ingredients
 ### Main
-Kimchi,     250g
-Onion,  1 small
-Shallot,    2 small
-Egg,    1
-Ice Water,  1 cup
-Flour,  enough
+Kimchi,     250g  
+Onion,  1 small  
+Shallot,    2 small  
+Egg,    1  
+Ice Water,  1 cup  
+Flour,  enough  
 
 ### Other
-Cornstarch
-Salt
-Sugar
-Gochujang,  half a spoon
-Gochugaru, just sprinkle some lmao
+Cornstarch  
+Salt  
+Sugar  
+Gochujang,  half a spoon  
+Gochugaru, just sprinkle some lmao  
 
 ## Method
 1. Add kimchi, sliced onion, sliced shallot (5cm chunks) into bowl
