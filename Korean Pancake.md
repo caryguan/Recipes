@@ -1,7 +1,7 @@
 # Korean Pancake
 
 ## Notes
-Makes 2 
+Makes 2   
 Add pork belly/bacon in pan first to render out fat and cook pancake in the fat
 
 ## Ingredients
