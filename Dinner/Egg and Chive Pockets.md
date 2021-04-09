@@ -27,7 +27,7 @@ Chicken Bouillon Powder
 3. Chop chives and add in 1 spoon of salt and mix to start softening  
 4. Beat eggs with 1 spoon of salt, cook, add on top of chives  
 5. Chop up vermicelli and put on top of eggs and chives  
-6. Add white pepper, oyster sauce, 5 spice, sesame oil, chicken bouillon powder, salt to taste, msg, and combine
+6. Add white pepper, oyster sauce, 5 spice, sesame oil, chicken bouillon powder, salt to taste, msg, and combine  
 7. Divide dough in 16 parts, roll em out, fill with 1 soup spoon of filling  
 8. Ikea non stick pan, middle burner, fire knob straight down, bit of oil  
 9. Cook for 3 mins, oil other side and flip  

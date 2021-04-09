@@ -6,7 +6,7 @@ Makes 2 loaves
 ## Ingredients
 ### Main
 1000g Flour (can do 800 white 200 wholewheat)  
-800g Water  
+780g Water  
 200g Starter  
 20g Salt
 
