@@ -1,19 +1,25 @@
 # Basic Sponge
 
 ## Notes
-Makes 2 large layers  
+Makes one 1-inch tall cake
 
 ## Ingredients
 ### Main
-Eggs,  6 (room temp)  
-Sugar,  1 cup  
-Flour,  1 cup  
+Butter, 200g  
+Sugar, 160g  
+Eggs,  3 large (room temp)  
+Vanilla Extract,  1 tbsp  
+Self-Raising Flour,  200g  
 Baking Powder, 1/2 tsp  
+Milk,  4 tbsp
 
 ### Other
 
 ## Method
 1. Preheat oven to 180C  
-2. Beat eggs, gradually adding sugar then continuing to beat for 8-10 mins until thick and fluffy  
-3. Sift flour and baking poder into mixture one third at a time, folding to combine. Don;t overmix  
-4. Bake for 25 mins  
+2. Cream butter and sugar (about 5 mins)  
+3. Mix in one egg at a time.  
+4. Mix in vanilla  
+5. Add flour and baking powder  
+6. Mix in milk  
+7. Bake for about 30 mins  
