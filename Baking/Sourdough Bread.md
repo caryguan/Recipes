@@ -21,9 +21,9 @@ Flour for dusting
 4. Slap and fold to incorporate
 5. Cover with cling wrap and let rest for 30 mins
 6. Add rest of water and salt
-7. Slap and fold again
+7. Stretch and fold
 8. Cover and let rest for 30
-9. Repeat 7 and 8 for 3-4 hours
+9. Repeat 7 and 8 for 3-4 hours (bulk ferment)
 10. Cut dough into 2 pieces and pre-shape them into balls
 11. Dust with flour and let relax for 15 mins
 12. Prepare rising vessel (bread tin or bowl lined with teatowel and dusted with flour)
