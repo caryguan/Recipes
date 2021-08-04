@@ -2,7 +2,7 @@
 
 ## Notes
 Makes 2   
-Add pork belly/bacon in pan first to render out fat and cook pancake in the fat
+Add pork belly/bacon in pan first to render out fat and cook pancake in the fat  
 
 ## Ingredients
 ### Main

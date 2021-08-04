@@ -27,7 +27,7 @@ Salt n Pep
 6. Mix olive oil with remainder of the herbs, garlic, some salt and pepper and rub it on the OUTSIDE of the skin  
 7. Slice a whole medium onion in rings and lay on the bottom of a baking tray.  
 8. Place chichen ontop, breast up and fill cavity with "stuffing". Dont worry about sealing the cavity with butchers twine or something, this is home cooking its ok if it falls out a bit. Just eat it over the sink like a rat.  
-9. Pour 2 glugs of white wine and small squeeze of lemon juice onto the tray and bake in oven on lowest rack for 2.5 hours, basting every hour. Note I need to use bottom rack or else skin will burn before chicken is cooked through. I don't really time the chicken either, when the skin at the top is nice and crispy, the whole chicken is also about done at the same time. Works out nicely  
+9. Pour 2 glugs of white wine and small squeeze of lemon juice onto the tray and bake in oven on lowest rack for 2 hours, basting every hour. Note I need to use bottom rack or else skin will burn before chicken is cooked through. I don't really time the chicken either, when the skin at the top is nice and crispy, the whole chicken is also about done at the same time. Works out nicely  
 10. Remove chicken and wrap in foil to rest for 20-30 mins.  
 11. Make a sauce by slowly reducing all the liquid and fat in the bottom of the pan.  
 
