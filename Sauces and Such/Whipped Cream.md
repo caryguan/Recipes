@@ -3,7 +3,7 @@
 ## Notes
 Makes a lot  
 Make this right before serving and try not to serve it on anything hot  
-Use the largest bowl and whisk you have to speed up the process  
+Use the largest bowl and largest whisk you have to speed up the process  
 
 ## Ingredients
 ### Main

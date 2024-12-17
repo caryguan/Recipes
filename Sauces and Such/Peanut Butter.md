@@ -5,7 +5,7 @@
 
 ## Ingredients
 ### Main
-Raw Peanuts,    3 times container volume
+Raw Peanuts,    2.5 times container volume
 
 ### Other
 Salt

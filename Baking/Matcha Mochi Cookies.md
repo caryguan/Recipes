@@ -14,11 +14,11 @@ Matcha Powder,  2 tsp
 Baking Soda,  1 tsp  
 Choc Chips,  about 5 per cookie, just get a small bag  
 #### Mochi
-Glutinous Rice Four,  6 tbsp  
+Glutinous Rice Four,  6 tbsp (50g)  
 Corn Starch,  4 tsp  
-White Sugar,  4 tsp  
-Milk,  1/2 cup  
-Butter,  2 Tbsp  
+White Sugar,  4 tsp (20g)  
+Milk,  1/3 cup  
+Butter,  1 Tbsp (15g)  
 
 ## Method
 1. Preheat oven to 180C.  

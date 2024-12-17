@@ -15,7 +15,7 @@ Softened Butter/Oil
 Matcha Powder or other flavours (optional)  
 ## Method
 1. Cook 75g sugar and 2 Tbsp water in a non-stick saucepan until dark brown.  
-2. Add in 1 Tbsp water to prevent overcooking and thin the caramel so its easier to pour.  
+2. Add in 1 Tbsp of boiling water to prevent overcooking and thin the caramel so its easier to pour.  
 3. Pour out evenly into 4 small bowls. Pre-warm the bowls so the caramel stays liquid and has time to pool into a nice layer.  
 4. Warm milk in the microwave and beat eggs and sugar in another bowl.  
 5. Combine milk, eggs and sugar and strain into a measuring cup/bowl/container with a pouring spout.  
