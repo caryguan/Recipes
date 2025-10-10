@@ -18,6 +18,7 @@ Sugar, 1 tablespoon
 Quail Eggs, 2 tins  
 Chinese 5 spice powder, 1 teaspoon  
 Groud white pepper, 1 teaspoon  
+
 ### Other
 Salt, msg, chicken boullion  
 
