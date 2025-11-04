@@ -8,11 +8,11 @@ Shallots, 4
 Ginger, 5 slices  
 Garlic,  half a head  
 Spring Onion, 2 stalks  
-Light Soy Sauce, 1/2 cup  
+Light Soy Sauce, 1/3 cup  
 Dark Soy Sauce, 1/4 cup  
 Chinese Cooking Wine, 1/4 cup  
 Bay Leaves, 5  
-Cloves, 8  
+Cloves, 10  
 Star Anise, 3  
 Sugar, 1 tablespoon  
 Quail Eggs, 2 tins  
