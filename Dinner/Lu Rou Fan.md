@@ -30,7 +30,7 @@ Salt, msg, chicken boullion
 5. Slice up the shallots thinly. Once the pork belly is done, remove the pork belly and fry the shallots in the rendered out lard at high heat, switching to low when most of the water is boiled off as it goes from crispy to burnt very quickly after that point  
 6. Drain the lard from the shallots and reserve for other dishes  
 7. In a braising vessel, add a bit of the shallot infused lard, the pork belly, ginger, garlic and spring onion. Fry for a minute  
-8. Add in light soy sauce, dark soy sauce and cooking wine.  
+8. Add in light soy sauce, dark soy sauce, cooking wine and fried shallots  
 9. Add in bay leaves, cloves, star anise, sugar, 5 spice powder, ground white pepper and quail eggs.  
 10. Add water until liquid covers all the meat and braise for 1 hour on med heat with the lid on. Top up water as necessary  
 11. Once the braising is done and meat is soft, adjust seasoning as necessary with salt, msg, chicken boullion, and any of the previously added sauces and spices.  
